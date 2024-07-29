@@ -20,6 +20,6 @@ In **Swipe Down**, players embark on an exciting adventure where quick reflexes 
 
 ## Advertising Video
 
-A link to the advertising video for **Swipe Down** is included in the repository
+A link to the advertising video for **Swipe Down** is included in the repository and also here: https://youtube.com/shorts/9fB5EpbPnms?si=7FBCWIwhYmZm48fu
 
 
